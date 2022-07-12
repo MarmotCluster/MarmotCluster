@@ -1,4 +1,4 @@
-### Have a lot of dreams growing with showable projects. 😁
+### Have a lot of dreams and wanna grow with showable projects. 😁
 
 ## Main dishes:
 Programming Languages: <br>
