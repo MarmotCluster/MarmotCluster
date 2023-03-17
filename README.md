@@ -1,4 +1,4 @@
-### Have a lot of dreams and i wanna grow with showable projects. 😁
+### Collage student. i'm learning cyber securities
 
 ## Main dishes:
 Programming Languages: <br>
