@@ -1,4 +1,4 @@
-### Collage student. i'm learning cyber securities
+### university student. i'm learning cyber securities
 
 ## Main dishes:
 Programming Languages: <br>
